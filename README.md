@@ -1,0 +1,1 @@
+# W7Figma_adaptive
